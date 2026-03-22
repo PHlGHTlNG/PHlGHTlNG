@@ -1,16 +1,28 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**PHlGHTlNG/PHlGHTlNG** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="600" height="650" alt="hyperlaser graphic by laboratory_tool on discord" src="https://i.imgur.com/dWDsSeo_d.webp?maxwidth=760&fidelity=grand" />
 
-Here are some ideas to get you started:
+<div align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="500" height="175" alt="gif sparkle text divider" src="https://i.imgur.com/6A5wuAe.gif" />
+
+
+
+
+![div](https://i.imgur.com/p6rjbS1.png) 
+
+
+ ![img](https://i.imgur.com/R0oYYjK.gif) 
+ ︵︵⠀⠀Med ou Hyper ⠀⠀.
+
+  ⠀ We / Us ⠀.⠀⠀Agender⠀⠀ (^_^)
+
+
+ 7TEEN⠀ Traumagen-sys
+  ⠀C+H Always ![e2](https://i.imgur.com/vztky60.gif)
+
+  ![div2](https://i.imgur.com/nAS3S18.gif)
+⠀⠀⠀⠀⠀
+
+![stamp2](https://i.imgur.com/WQ8RPrS.png)![stamp](https://i.imgur.com/O0mY7nH.gif)![stamp3](
+https://i.imgur.com/v2H1vNk.png)
