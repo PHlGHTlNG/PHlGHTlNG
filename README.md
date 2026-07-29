@@ -18,7 +18,7 @@
   ⠀ We / Us ⠀.⠀⠀Agender⠀⠀ (^_^)
 
 
- 7TEEN⠀ Traumagen-sys
+ 18⠀ Traumagen-sys
   ⠀C+H Always ![e2](https://i.imgur.com/vztky60.gif)
 
   ![div2](https://i.imgur.com/nAS3S18.gif)
